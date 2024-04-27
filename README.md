@@ -1,0 +1,5 @@
+Tata Certificate
+[MyXvBcppsW2FkNYCX_Tata Group_vNMmxjrbKkWPWN72P_1714227986102_completion_certificate.pdf](https://github.com/analystvipul/Forage/files/15138502/MyXvBcppsW2FkNYCX_Tata.Group_vNMmxjrbKkWPWN72P_1714227986102_completion_certificate.pdf)
+
+Accenture Certificate
+[hzmoNKtzvAzXsEqx8_Accenture North America_vNMmxjrbKkWPWN72P_1714213628526_completion_certificate.pdf](https://github.com/analystvipul/Forage/files/15138503/hzmoNKtzvAzXsEqx8_Accenture.North.America_vNMmxjrbKkWPWN72P_1714213628526_completion_certificate.pdf)
